@@ -14,4 +14,4 @@
 用户还可享受多终端同步观看体验，无论是手机、电脑还是智能电视，都可无缝切换，方便灵活。  
 总之，国产福利电影一区二区三区资源和平台的结合，为广大用户提供了一个安全、丰富、舒适的成人视频观看环境。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/aiy456547/ribenaa543502 )</span>
